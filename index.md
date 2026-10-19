@@ -1,6 +1,5 @@
 # Custom Rigid Gift Box Supplier
-Hi, I'm Chloe.
-We provide custom rigid gift boxes with your brand logo for startup and boutique brands.
+Hi, I'm Chloe. We provide custom rigid gift boxes with your brand logo for startup and boutique brands.
 
 ## Our Service
 ✅ Custom size & structure for rigid gift boxes
@@ -10,15 +9,17 @@ We provide custom rigid gift boxes with your brand logo for startup and boutique
 
 ## MOQ & Pricing
 - Standard MOQ: 500 pcs per design & per size
-- Startup option: 100–200 pcs available
-> Note: Unit price will be higher for small orders due to fixed production setup cost.
+- Startup option: 100 - 200 pcs available
 
 ## Production & Shipping Timeline
+### 生产与运输周期
 - Production: 12–15 working days after design approval and deposit
-- Sea shipment to Abu Dhabi: 25–35 days
+  生产：设计确认+收到定金后 12–15 个工作日
+- Sea freight: depends on destination port
+  海运时效：根据目的港不同而定
 - Air shipping available upon request
+  可按需安排空运
 
 ## Contact
-WhatsApp: [+8619311637759]
+WhatsApp: +8619311637759
 Email: clloe423@gmail.com
-> Feel free to share your target box size and artwork, I will prepare the formal quotation for you.
