@@ -2,38 +2,53 @@
 Hi, I'm Chloe. We supply custom printed packaging boxes for cosmetics, gifts, wine, jewelry and more.
 
 ## Our Box Types
-1. Rigid Luxury Gift Box
-<img src="https://shturl.cc/Rn/WDM255Lg/wei-xin-tu-pian-20261018180006-79-3.png" alt="Rigid Luxury Gift Box" style="max-width:600px; width:100%;">
+1. Vintage Floral Multi-size Gift Box Set
+![Vintage Floral Multi-size Gift Box Set](box1.png)
+Elegant floral printed rigid boxes in assorted sizes. Perfect for boutique gifts, wedding & birthday presents. Custom logo available.
 
-2. Paper Gift Bag
-<img src="https://shturl.cc/Rn/9RMnDfpm/wei-xin-tu-pian-20261019150708-83-3.png" alt="Paper Gift Bag" style="max-width:600px; width:100%;">
+2. Beige Ribbon Paper Gift Tote Bag
+![Beige Ribbon Paper Gift Tote Bag](box2.png)
+Delicate paper gift bag with satin ribbon handle. Great for wedding favors, small retail gifts and party packaging.
 
-3. Hexagonal Gift Box
-<img src="https://shturl.cc/Rn/zbBcyfjL/wei-xin-tu-pian-20261019150943-87-3.png" alt="Hexagonal Gift Box" style="max-width:600px; width:100%;">
+3. Pink Open Cosmetic Rigid Box
+![Pink Open Cosmetic Rigid Box](box3.png)
+Open style cosmetic gift box, customized insert to hold skincare & makeup sets. Ideal for beauty brand gift packaging.
 
-4. Pattern Rigid Gift Box
-<img src="https://shturl.cc/Rn/S2svnKr2/wei-xin-tu-pian-20261019151234-88-3.png" alt="Pattern Rigid Gift Box" style="max-width:600px; width:100%;">
+4. Cream Floral Pattern Gift Box Collection
+![Cream Floral Pattern Gift Box Collection](box4.png)
+Classic light floral printed gift boxes with matching ribbon. Popular for luxury gift sets and holiday packaging.
 
-5. Cosmetic Gift Box
-<img src="https://shturl.cc/Rn/PC7Lg3Ry/786c77fb0f91b1c68a289d0f7e7b2223.png" alt="Cosmetic Box" style="max-width:600px; width:100%;">
+5. Multi-color Small Rigid Packaging Box Collection
+![Multi-color Small Rigid Packaging Box Collection](box5.png)
+Mixed-color small rigid boxes, suitable for jewelry, perfume, candle and souvenir tiny gifts.
 
-6. Jewelry Box
-<img src="https://shturl.cc/Rn/d7T7wRMP/82479f16c6698fa5cf158873d647766d.png" alt="Jewelry Box" style="max-width:600px; width:100%;">
+6. Premium Candle Gift Box
+![Premium Candle Gift Box](box6.png)
+Custom cardboard box for candle gift sets. Minimal style, supports foil stamping and custom inner tray.
 
-7. Candle Gift Box
-<img src="https://shturl.cc/Rn/rdtdMG6R/b46716e59ae281980caf596dab84da80.png" alt="Candle Gift Box" style="max-width:600px; width:100%;">
+7. Pink Bow Rigid Gift Box with Tote
+![Pink Bow Rigid Gift Box with Tote](box7.png)
+Romantic pink gift box matched with paper tote bag, widely used for beauty products and festival gifts.
 
-8. Wine Gift Box
-<img src="https://shturl.cc/Rn/t1V1pd0j/wei-xin-tu-pian-20261017152018-55-3.png" alt="Wine Box" style="max-width:600px; width:100%;">
+8. Orange Luxury Rigid Box Series
+![Orange Luxury Rigid Box Series](box8.png)
+High-end orange rigid boxes set, perfect for premium gifts, chocolate and cosmetic bundle packaging.
 
-9. Luxury Jewelry Set Box
-<img src="https://shturl.cc/Rn/LqZq2kdk/wei-xin-tu-pian-20261018180045-80-3.png" alt="Luxury Jewelry Box" style="max-width:600px; width:100%;">
+9. Custom Wine Gift Box
+![Custom Wine Gift Box](box9.png)
+Luxury wine packaging box, holds wine bottles & accessories. Custom size for holiday wine gift sets.
 
-10. Cosmetic Set Box
-<img src="https://shturl.cc/Rn/sQdMXByG/wei-xin-tu-pian-20261019150725-84-3.png" alt="Cosmetic Set Box" style="max-width:600px; width:100%;">
+10. Green Vintage Floral Rigid Boxes
+![Green Vintage Floral Rigid Boxes](box10.png)
+Green pattern rigid gift boxes, matches organic skincare, tea and premium natural gift items.
 
-11. Scented Candle Box
-<img src="https://shturl.cc/Rn/G8w42BrD/wei-xin-tu-pian-20261019150808-85-3.png" alt="Scented Candle Box" style="max-width:600px; width:100%;">
+11. Two-tone Brown & Orange Rigid Gift Box
+![Two-tone Brown & Orange Rigid Gift Box](box11.png)
+Simple luxury dual-color rigid boxes, fit for jewelry, watch and high-end small gifts.
+
+12. Dark Floral Printed Gift Box Set
+![Dark Floral Printed Gift Box Set](box12.png)
+Artistic dark floral printed gift set, favored by boutique brand for luxury souvenir packaging.
 
 ## Available Craft Options
 ✅ Hot foil stamping
@@ -50,5 +65,5 @@ Hi, I'm Chloe. We supply custom printed packaging boxes for cosmetics, gifts, wi
 12–15 working days after artwork confirmed and deposit paid
 
 ## Contact
-WhatsApp: +86 19311637759
+WhatsApp: +8619311637759
 Email: clloe423@gmail.com
